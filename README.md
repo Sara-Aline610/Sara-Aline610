@@ -1,4 +1,4 @@
-<h1> Sara Soares <h1>
+<h1> Sara Soares <h1> :sun_with_face:
 
 <p> Seja grato por tudo que tem! <p>
 
